@@ -4,8 +4,6 @@ IF YOU CAN SEE THIS
 
 IT 
 
-FUCKING
+IS
 
-WORKED
-
-still fucking with it! 🦅
+A WEBSITE
